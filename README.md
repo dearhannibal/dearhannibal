@@ -1,3 +1,4 @@
+<p align="center">
 ## Scar or Jo [he/him](https://en.pronouns.page/@dearscar) my main account is [LoveCrime](https://github.com/LoveCrime)
 
 <p align="center">
