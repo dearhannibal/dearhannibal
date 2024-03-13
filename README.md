@@ -1,3 +1,5 @@
+##Scar or Jo my main account is [LoveCrime](https://github.com/LoveCrime)
+
 <p align="center">
 <img src=https://files.catbox.moe/a7acsj.gif >
 <p align="center" >
